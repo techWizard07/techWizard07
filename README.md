@@ -1,4 +1,4 @@
-## Hey 👋, I'm Rishav Anand!  
+## Hey 👋, I'm AKASH!  
   
 
 <a href="https://github.com/techWizard07/techWizard07" target="_blank">
